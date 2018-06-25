@@ -3,10 +3,6 @@ Practical 2
 
 asdkljasdlj
 laksdlaskjd
-asdljkasldkjaskljhlkjdf
-
-sdflkjsdlkfj
-df;lkj
 
 sdlkfjsdf
 
